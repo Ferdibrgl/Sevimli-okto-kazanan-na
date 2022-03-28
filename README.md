@@ -1,0 +1,1 @@
+# Sevimli-okto-kazanan-na
